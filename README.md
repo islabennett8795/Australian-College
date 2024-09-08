@@ -1,2 +1,5 @@
 # Australian-College
 At Australian College, we are totally dedicated to giving our students access to the very best nationally recognised, professional and personal development courses with the flexibility to study online using the best online technology available.
+advanced professional writing and editing course support courses designed for individuals at different stages of their careers. Shape the future of our children and help them to become successful adults. Entry-level courses like the Certificate III and Diploma in Early Childhood Education and Care provide foundational and advanced skills. For professionals looking to advance or specialize, the college offers courses like the Advanced Diploma of Community Sector Management, as well as short courses and workshops. They also provide flexible learning options, recognition of prior learning, and career support services, helping students gain practical experience and succeed in the childcare field.
+
+https://www.australiancollege.edu.au/business-management-and-marketing/
